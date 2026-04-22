@@ -1,0 +1,1 @@
+# lgelgejogeol.kanji_flash
